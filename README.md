@@ -1,7 +1,7 @@
 # Fitform Vario 570 (LAAGSTE PRIJS)
 
 De laagste bekende prijs in 2025 voor de Fitform Vario 570 (nieuw, standaard uitvoering) is ongeveer **€3.599** 💶  
-👉 **[Check de actuele prijs >](https://sta-opstoelen.nl/assortiment)**
+👉 **[Check de laagste prijs hier >](https://sta-opstoelen.nl/assortiment)**
 
 ---
 
